@@ -1,1 +1,0 @@
-# chaoticgoodmgmt.github.io
